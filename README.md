@@ -1,1 +1,13 @@
 # workbase
+
+Welchen Zweck hat die Bindung von Mitarbeitern?
+
+Mit Hilfe dieses Bereichs können kluge Köpfe mittel- bis langfristig an ein Unternehmen gebunden werden. Um wichtige, qualifizierte Fachkräfte oder Akademiker in den eigenen Reihen zu halten, gibt es verschiedene Möglichkeiten. Sie alle bieten jedoch ganz entscheidende Vorteile für ein Unternehmen. Das spart nicht nur Kosten bei der Personalbeschaffung, steigert die Produktivität, verbessert das Betriebsklima und hält die Fluktuationsrate niedrig, sondern steigert auch das Ansehen des eigenen Unternehmens und die Weiterempfehlungsbereitschaft der Mitarbeiter.
+
+Maßnahmen zur Schaffung eines angenehmen Arbeitsklimas
+
+Ein angenehmes Arbeitsumfeld steht ganz oben auf der Liste der Kriterien, die Arbeitnehmer in einem guten Unternehmen suchen. Dazu gehören neben einer professionellen Ausstattung und einer guten und günstigen Verpflegung zunehmend auch Weiterbildungsangebote und eine gute interne Kommunikation. Dafür sollten Unternehmen auf die marktführende <a href="https://www.workbase.com">Workbase Mitarbeiter Plattform</a> setzen. Unternehmen, die sich auch um die Gesundheit ihrer Mitarbeiter kümmern, sorgen nicht nur für gute Laune, sondern können in der Regel auch mit weniger krankheitsbedingten Fehltagen rechnen. Neben betrieblich geförderten Sportprogrammen tragen auch ergonomisch optimierte Arbeitsplätze, Impfkampagnen oder spezielle Wellnesstage zu einer zufriedeneren und gesünderen Belegschaft bei. Maßnahmen, die eine positive Unternehmenskultur fördern, sind ein weiterer wichtiger Baustein zur Optimierung der Mitarbeiterbindung. Dazu gehören zum Beispiel Betriebsfeiern oder teambildende Maßnahmen.
+
+Ein attraktiver Arbeitgeber sein
+
+Wenn das Unternehmen von seinen Mitarbeitern als etwas Besonderes wahrgenommen wird, wird sich das herumsprechen. Dazu gehört neben einer sinnvollen Arbeit vor allem der Respekt, den man dem Einzelnen und der Arbeit entgegenbringt. Diese emotionale Bindung ist für bestehende Mitarbeiter sehr wichtig, um sie zu halten. Das macht sie aber auch zu wichtigen Fürsprechern bei der Gewinnung neuer, junger und gut ausgebildeter Talente. Sich auf diese Weise einen guten Ruf aufzubauen, ist für ein Unternehmen harte Arbeit, aber unglaublich wichtig. Diese so genannte Arbeitgebermarke kann dann genutzt werden, um neue Mitarbeiter zu gewinnen. Mit Hilfe von Social-Media-Kanälen oder Mitarbeiter-Rekrutierungsprogrammen können zusätzlich zu den klassischen Stellenausschreibungen junge Fachkräfte für das Unternehmen gewonnen werden. Übersichtliche Karriereportale und spezielle Karriereveranstaltungen auf der Website vermitteln einen Eindruck von Professionalität und erleichtern den Interessenten den Einstieg.
